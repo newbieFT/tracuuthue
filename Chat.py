@@ -1,4 +1,12 @@
 
+🔥 Bạn có thể truy cập các ứng dụng được dùng trong video tại đây:
+(1) ChatGPT: https://chatgpt.com/
+(2) Flux.1 Kontext: https://playground.bfl.ai/
+(3) Kling AI: https://www.klingai.com/
+(4) Google AI Studio: https://aistudio.google.com/
+(5) CapCut: https://www.capcut.com/
+-----------------
+
 Chắc chắn rồi, việc lồng ghép yếu tố văn hóa Việt Nam vào video sẽ tạo thêm chiều sâu và sự gần gũi cho dự án của bạn. Dưới đây là các phân cảnh được điều chỉnh để bao gồm các yếu tố Việt Nam:
 Kịch bản và Phân cảnh với yếu tố Việt Nam
 Giới thiệu
